@@ -1,2 +1,0 @@
-# updated-skins
-あたらしい
