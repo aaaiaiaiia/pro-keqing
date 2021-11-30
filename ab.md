@@ -1,11 +1,14 @@
 # updated skins
-
-
-
-
-
-
-
+# ---------------------------------------------------------------------------
+# [11/29/21](https://aaaiaiaiia.s-ul.eu/8i5wVsjA)
+![](https://media.discordapp.net/attachments/386033738087137300/915132563583033364/unknown.png?width=832&height=468)
+# ---------------------------------------------------------------------------
+# [11/29/21](https://aaaiaiaiia.s-ul.eu/ilzlbNOj)
+![](https://media.discordapp.net/attachments/386033738087137300/915132858266419200/unknown.png?width=832&height=468)
+# ---------------------------------------------------------------------------
+# [11/29/21](https://aaaiaiaiia.s-ul.eu/zXzZidHX)
+![](https://media.discordapp.net/attachments/386033738087137300/915133236697530368/unknown.png?width=832&height=468)
+# ---------------------------------------------------------------------------
 
 
 
